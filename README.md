@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @glendaDevelopsCode
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
+- 👋 Hi, I’m @glendaDevelopsCode. I go by Nat sometimes.
+- 👀 I’m interested in leading teams to be better versions of themselves. I also love solving a good problem.
+- 🌱 I’m currently learning: Python! I'm also working diligently to show off some of my mad skills in C#.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: I am available on Linked In - [Linked In Profile](https://www.linkedin.com/in/glenda-miyoshi-655688126/)
 - 😄 Pronouns: She/Her
