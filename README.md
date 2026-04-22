@@ -5,7 +5,7 @@
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have a TON of these. I like to drop them on people like I'm talking about the weather.
   - Except for this one: I have read through War and Peace every year since 2018. Technically listened through, I guess, but still!
-- 📖Currently Reading (Fiction): *The Great Hunt* By Robert Jordan
+- 📖Currently Reading (Fiction): *The Great Hunt* By Robert Jordan and Dungeon Crawler Carl books
 - 📚Currently Reading (Non-Fiction): *Inspired* By Marty Cagan
 - [I have a StoryGraph Account, too!](https://app.thestorygraph.com/) - It's fun and I am absolutely reading more things.
 - 🕹️Video Games: Yep, I play these! I am currently playing Jump Space 👾 and Deep Rock Galactic⛏️.
